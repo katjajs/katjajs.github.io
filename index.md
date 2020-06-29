@@ -1,1 +1,2 @@
 # Amelie Nothomb: Roehre
+Amelie Nothomb, geboren 1967 in Kobe, Japan, hat ihre Kindheit und Jugend als Tochter eines belgischen Diplomaten hauptsächlich in Fernost verbracht. Seit ihrer Jugend schreibt sie wie besessen. In Frankreich stürmt sie mit jedem neuen Buch die Bestsellerlisten und erreicht Millionenauflagen. 
