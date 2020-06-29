@@ -13,3 +13,5 @@ Amelie Nothomb, geboren 1967 in Kobe, Japan, hat ihre Kindheit und Jugend als To
 
 > Ich will nicht fort! Ich muß hierbleiben! Das ist mein Land! Das ist mein Haus!   
 > Es is tmein Land! Ich sterbe, wenn ich fort muss!
+
+<img src="https://images-na.ssl-images-amazon.com/images/I/41h82w-jUXL._SX312_BO1,204,203,200_.jpg"/>
