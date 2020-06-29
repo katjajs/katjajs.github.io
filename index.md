@@ -7,3 +7,9 @@ Amelie Nothomb, geboren 1967 in Kobe, Japan, hat ihre Kindheit und Jugend als To
 * ein Lebewesen, das sich nicht rührte, nicht schrie
 * bis die Großmutter weiße Schokolade aus Belgien brachte, da wurde das Wesen zum Menschen
 * zum Kleinkind im japanischen Garten Eden
+
+## Abscheuliche Neuigkeiten
+### Nothomb, dessen Vater Diplomat ist, erfährt, dass sie und ihre Familie Japan in den nächsten Jahren verlassen werden. Ihr Kindermädchen Nishio-san wird die Familie nicht begleiten können. 
+
+> Ich will nicht fort! Ich muß hierbleiben! Das ist mein Land! Das ist mein Haus! 
+> Es is tmein Land! Ich sterbe, wenn ich fort muss!
